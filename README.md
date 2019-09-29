@@ -7,7 +7,7 @@ Hitech Crime Single 'Profiles of Negation'
 
 Gratata
 
-**Title:** Mindchip / **Featuring:** MOTHNODE
+**Title:** Profiles of Negation / **Featuring:** MOTHNODE
 
 **Production:** Retnik / **Lyrics:** MOTHNODE
 
