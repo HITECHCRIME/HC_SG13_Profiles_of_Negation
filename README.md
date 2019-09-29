@@ -1,16 +1,11 @@
 # MOTHNODE_ Profiles of Negation (Prod. Retnik)
 Hitech Crime Single 'Profiles of Negation'
 
-Gratata
-
-# MOTHNODE_ Mindchip
-Hitech Crime Single 'Mindchip'
-
 **Listen now:**
 
 ## Project Data
 
-[MONACO/SAAF]
+Gratata
 
 **Title:** Mindchip / **Featuring:** MOTHNODE
 
